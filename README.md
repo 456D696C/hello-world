@@ -11,3 +11,8 @@ Just another repository
 Злободневка. Студ
 
 see:https://chitanka.info/person/hristo-smirnenski
+
+It is cold damn it! Cold!
+cuts you torn apart!
+To slightly bounce back
+Try two ladies in a pack.
